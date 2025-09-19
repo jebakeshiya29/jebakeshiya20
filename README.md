@@ -1,2 +1,0 @@
-# jebakeshiya20
-portfolio
